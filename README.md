@@ -12,3 +12,5 @@
 需要源码代搭建或是一条龙服务的
 下方链接添加微信<br>
 https://work.weixin.qq.com/kfid/kfc3f98e7ac786c384e
+或者复制搜索
+wu-zhi-x-k_xingx
